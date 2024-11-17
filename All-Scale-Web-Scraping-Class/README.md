@@ -1,1 +1,0 @@
-# All-Scale-Web-Scraping-Class
